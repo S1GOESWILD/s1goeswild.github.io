@@ -1,2 +1,1 @@
-# S1.fuckedegirls.live
-# #Anti-AFFEECSANs 
+# s1.fuckedegirls.live
